@@ -1,4 +1,4 @@
-My name is Ibrahim and I have made this pretty site for all my fans I have learned alot and I would like to improve m skills 
+My name is Ibrahim and I have made this pretty site for all my fans I have learned alot and I would like to improve my skills 
 
 Good bye everyone 
 
